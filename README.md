@@ -11,7 +11,7 @@ FAITH The Unholy Trinity , Bully , FNaF , BatIM , Inside Job , NINAH , Dispatch 
 ### fav characters
 John Ward , Bif Taylor , Gary Smith , Derby Harrington , Johnny Vincent , Jimmy Hopkins , Pete Kowalski , Tad Spencer , Miles Quaritch , Robert Robertson ,  Homeowner , Brett Hand , Ron Staedtler , Gamma Jack , Kenshi Takahashi , Johnny Cage , Curly , Gallagher , Phainon , Mr Reca , Henry Emily , William Afton , and more !
 ### fav ocs
-Firdaus V. , Eja Alexander , Wesley Mercier , Scott Ross , Ronald Harmony , Civil Cliventon , Arjuna , Nakula , and more !
+Firdaus Prasetya , Eja Alexander , Wesley Mercier , Scott Ross , Ronald Harmony , Civil Cliventon , Arjuna , Nakula , and more !
 
 ### favourite actors
 Ryan Gosling . Lee Jin-wook
