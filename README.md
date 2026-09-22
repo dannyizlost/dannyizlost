@@ -6,7 +6,7 @@ curious fella . c+h ! w2i also !! mostly online on discord . any pronouns !  i l
 
 ## interest !
 
-FAITH The Unholy Trinity , Bully , FNaF , BatIM , Inside Job , NINAH , Dispatch , Little Nightmares , Mouthwashing , Honkai Star Rail , Avatar 1-3 , Sky : COTL , and more !
+FAITH The Unholy Trinity , Bully , FNaF , A Knight of the Seven Kingdoms , Inside Job , NINAH , Dispatch , Little Nightmares , Mouthwashing , Honkai Star Rail , Avatar 1-3 , Sky : COTL ,  BatIM and more !
 ## favourite characters + original characters
 ### fav characters
 John Ward , Johnny Vincent , Bif Taylor , Aerion "Brightflame" Targaryen , Duncan The Tall , Raymun Fossoway , Gallagher , Gary Smith , Derby Harrington ,  Henry Emily , Jimmy Hopkins , Pete Kowalski , Tad Spencer , Miles Quaritch , Robert Robertson ,  Homeowner , Brett Hand , Ron Staedtler , Gamma Jack , Kenshi Takahashi , Johnny Cage , Curly , Phainon , Mr Reca , William Afton , and more !
