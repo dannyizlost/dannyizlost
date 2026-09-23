@@ -1,6 +1,6 @@
 # Hi Hello , traveller ! welcome ! 
 
-## call me - danny . ryan . bif .
+## call me - danny !
 
 curious fella . c+h ! w2i also !! mostly online on discord . any pronouns !  i love to yap about my ocs so PLEASE do talk about it ^^
 
